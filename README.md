@@ -1,0 +1,4 @@
+okhqb
+=====
+
+my study
